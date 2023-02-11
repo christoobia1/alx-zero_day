@@ -1,1 +1,1 @@
-Just getting started coding. It feels soo cool!
+Coding is definitely interesting
